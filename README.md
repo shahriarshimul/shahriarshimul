@@ -15,7 +15,7 @@ I am actively seeking opportunities to collaborate on open-source projects, espe
 Driven by a passion for learning, I am on a perpetual journey to expand my knowledge in multiple languages and technologies. I'm particularly interested in exploring the realms of cloud computing and DevOps practices.
 
 💬 Let's Connect:
-I am open to discussions about web development best practices, database optimization, and agile software development methodologies. Feel free to connect with me here on LinkedIn or drop me an email at [YourEmail@example.com].
+I am open to discussions about web development best practices, database optimization, and agile software development methodologies. Feel free to connect with me here on LinkedIn or drop me an email at shahriarrahman14175@gmail.com.
 
 🔗 LinkedIn Profile: https://www.linkedin.com/in/shahriarrahman01/
 🌟 Fun Fact:
